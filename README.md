@@ -1,7 +1,7 @@
-Dreams dreamt. 
-Time spent.
+Dreams dreamt.  
+Time spent.  
 
-Minds bent.
+Minds bent.  
 
-Let's see where sight takes us.
-Let's see where the moments go.
+Let's see where sight takes us.  
+Let's see where the moments go.  
